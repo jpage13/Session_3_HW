@@ -1,0 +1,1 @@
+I enjoy outdoor activities like hiking 14ers, camping, and traveling. 
